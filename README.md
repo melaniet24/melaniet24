@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @melaniet24 a.k.a Melanie
+- 👀 I’m interested in Physics & Astronomy, Engineering, and Coding
+- 🌱 I’m currently pursuing a bachelor's degree in Physics & Astronomy
+- 💞️ I’m looking to collaborate on finding internships
+- 📫 How to reach me:
+- 😄 Pronouns: she/her/hers
+- ⚡ Fun fact: I love tennis!
